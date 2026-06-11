@@ -1,1 +1,0 @@
-# rsud-patuh-karya
